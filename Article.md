@@ -3,6 +3,15 @@
 Morocco, a land of vibrant colors, rich history, and diverse landscapes, offers a tapestry of experiences that captivate travelers from around the globe. From the bustling markets and ancient medinas to the vast Sahara Desert and stunning coastal towns, this North African gem beckons adventurers, culture enthusiasts, and wanderers seeking an unforgettable journey.
 
 As an experienced traveler who has spent time in Morocco with top-rated Moroccan tour company, [**Bereber Excursion**](https://bereberexcursion.com/) I would be happy to share my insights with you! Morocco is such a vibrant, exotic destination that envelops you in its rich culture and intrigues the senses at every corner.
+
+<p align="center">
+  <img style="max-width: 850px;"
+      border="0"
+      data-original-height="357"
+      data-original-width="398"      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiaCT6X9EDFi9DTUVaDo39Lt9nwyB_cWKxIkkx_BhTSgY9fE2_vVT3c0fHYWD-bqJ8RXY7qAHLTL1aNkwV-lGZOAVhKViUFKiRTE36g7iv6wYkLeXis01NckiP55p6q2JLqDFblcedeWurl96iQr9w015zvP2hzemAxiBElCOR3JmaSQrTMpXmfI1lnWkQH/s1600/ezgif-4-6d7a6f2562.jpg"
+  />
+</p>
+
 The medinas of Morocco's old imperial cities will transport you back in time as you navigate their winding narrow alleys filled with tiny shops bursting with handmade Moroccan wares – brilliant colored babouche slippers, delicate filigree silver jewelry, beautifully patterned ceramics, ornate lanterns casting a kaleidoscope of colors. You can easily lose yourself for hours taking in their charm. Make sure to sip refreshing mint tea as you take respite from the afternoon heat.
 
 Venture into the Atlas Mountains to the thousand-year old mud brick villages that seem to rise organically from the Earth itself. Meet the warm Berber villagers and learn about their ancient customs as you watch women hand spin wool from their sheep into intricate rugs and tapestries. Breathe in the fresh mountain air scented by aromatic wild herbs as you witness stunning vistas overlooking the valleys below.
